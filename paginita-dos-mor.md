@@ -1,2 +1,0 @@
-# paginita dos mor
-
